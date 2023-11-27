@@ -11,6 +11,4 @@
 #### - Katzen 🐱
 #### - Kekse 🍪
 #### - Kuchen 🍰
----
 
-#### Hier noch eine kurze Auflistung meiner Lieblings-Emojis 🙃 🤷🏼‍♀️ 🎉 💖
